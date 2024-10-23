@@ -1,6 +1,6 @@
 ## About me 🤍  
 
-Graduating from ✨University of Southern California✨ with a Film and TV Production MFA landed me at Paramount Studios where I fell in love with . . . plot twist . . . DATA 🤎. Now:
+Graduating from ✨University of Southern California✨ with a Film and TV Production MFA landed me at Paramount Studios where I fell in love with . . . plot twist . . . DATA. Now:
 
 - I’m currently working on my second masters in data analytics at Western Governors University
 - I'm passionate about:
